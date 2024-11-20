@@ -1,5 +1,5 @@
 Hi 👋
 
-▪ I am trying to learn here in GitHub 📝
-▪ Also I love playing games 🎮
+▪ I am trying to learn here in GitHub 📝 \n
+▪ Also I love playing games 🎮  \n
 ▪ Ask me something 🙂
